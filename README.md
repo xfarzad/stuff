@@ -13,8 +13,10 @@
 # Deals :
 
 * RatzR : CreditCard/Visa/Paypal, 100 USD dm to see features/buy
+
 * 2x golden age db, 2x golden age rev : (each 95 USD)
 
 # my scripts
 https://discord.gg/shhhh
+
 https://discord.gg/endlesssolutions
