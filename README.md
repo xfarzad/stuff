@@ -10,6 +10,8 @@
 
 + why so expensive? because it will be the best and there won't be any fps drops or bugs/errors and it will be optimized as fuck with a clean readable source + you will make hella reselling it
 
++ 3 years of lua coding experience, and over 30 commissions done
+
 # Deals :
 
 * RatzR : CreditCard/Visa/Paypal, 100 USD dm to see features/buy
