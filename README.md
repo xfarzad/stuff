@@ -16,6 +16,8 @@
 
 * RatzR : CreditCard/Visa/Paypal, 100 USD dm to see features/buy
 
+* RAtzR Source : 1,000 USD or ( RGB BAYO DH SKIN ) or 500k value in limiteds
+
 * 2x golden age db, 2x golden age rev : (each 95 USD)
 
 # my scripts
