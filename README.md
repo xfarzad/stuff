@@ -1,3 +1,9 @@
+# Selling
+3x tantos each ( 120 paypal or 105 crypto )
+Clean Yum face held for months ( 1.2k usd CRYPTO ONLY )
+Walkable Desync ( 200 usd paypal/crypto ) or ( x2 tantos )
+c6 xiao maxed out eu acc with his staff full access 0 quests left ar 54 for 300 usd
+
 # Contact :
 
 * join discord.gg/shhhh and open direct messages from the server and dm herqheih
