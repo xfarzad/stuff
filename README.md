@@ -1,7 +1,7 @@
 # Selling
-3x tantos each ( 120 paypal or 105 crypto )
+2x tantos each ( 110 paypal or 100 crypto )
 
-Clean Yum face held for months ( 1.2k usd CRYPTO ONLY )
+( sold ) Clean Yum face held for months ( 1.2k usd CRYPTO ONLY )
 
 Walkable Desync ( 200 usd paypal/crypto ) or ( x2 tantos )
 
