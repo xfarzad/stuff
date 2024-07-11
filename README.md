@@ -26,7 +26,7 @@ c6 xiao maxed out eu acc with his staff full access 0 quests left ar 54 for 300 
 
 # Deals :
 
-* 21x tantos 90$ each
+* 18x tantos 130$ each
 
 # my scripts
 https://discord.gg/shhhh
