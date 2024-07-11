@@ -12,7 +12,7 @@ c6 xiao maxed out eu acc with his staff full access 0 quests left ar 54 for 300 
 
 # Contact :
 
-* join discord.gg/shhhh and open direct messages from the server and dm yyyyyyyyyyyyyyyyyyyyyyyyyyyyy_y
+* join discord.gg/shhhh and open direct messages from the server and dm farzad#1337
 
 # commissions :
 
